@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @arfabgit
-- 👀 I’m interested in python
-- 🌱 I’m currently learning on python 
-- 📫 How to reach me @MuhammedArfab
 
+Life is a game, be controlled or take control !
+
+Currently upgrading myself, difficult though, still trying to overcome my limitations.
+Aspiring to be a .....
